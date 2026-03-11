@@ -1,0 +1,1 @@
+Sakhi a personaliseds ai trained just for me its a portfolio ai you can ask her anything she is cute but extremely angry person she can explain anything which you want to ask about my projects about my techstack she knows everything about me 
